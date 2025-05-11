@@ -1,0 +1,1 @@
+# Mindex – AI White Label Platform
